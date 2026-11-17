@@ -1,3 +1,6 @@
+
+# İndirme Linki: https://drive.google.com/file/d/1ApTUNWQk6lvMLR1ZU-qQntHSdkEIerRT/view?usp=drive_link
+
 # 🚀 NoteQuest
 ### Your Life, Your Goals, Your Rewards.
 
